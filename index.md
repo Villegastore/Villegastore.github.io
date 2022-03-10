@@ -1,4 +1,4 @@
-[Playerascaballero](./Playerascaballero.md) | [Pantalonescaballero](./Pantalonescaballero.md) | [Calzadocaballero](./Calzadocaballero.md)
+[Playerascaballero](./Playerascaballero.md) | [Pantalonescaballero](./Pantalonescaballero.md) | [Calzadocaballero](./Calzadocaballero.md) | [Trajescaballero](./Trajescaballero.md)
 
 ## VILLEGASTORE
 
