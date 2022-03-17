@@ -12,6 +12,7 @@ Los envios son por medio de estafeta y su costo de envio es de $120 o al realiza
 
 
 CODIGO QR
+![wa link_5n7hfn](https://user-images.githubusercontent.com/100169864/158906933-42df7e17-810d-4748-b556-7bde22262042.png)
 
 
 
