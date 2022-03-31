@@ -10,7 +10,7 @@ Recuerde que hacemos envios a toda la republica mexicana
 En nuestro numero de contacto puede llamar para agendar una cita
 Los envios son por medio de estafeta y su costo de envio es de $120 o al realizar una compra arriba de $700 pesos el envio es completamente gratis.
 
-
+ 
 CODIGO QR
 
 
